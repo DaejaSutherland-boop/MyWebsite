@@ -1,1 +1,1 @@
-my art website!
+My art website!
